@@ -3,7 +3,7 @@ Ring Support | Ring USA | Ring Camera Contact Us
 
 For quick support, contact the **Ring Customer Service Phone Number +1-803-888-4148 USA** for assistance with your Ring devices. You can also reach the **Ring Helpline Number +1-803-888-4148 USA** for troubleshooting, setup guidance, or technical help. Get 24/7 support on device issues, account queries, and installation assistance by calling the official **Ring helpline +1-803-888-4148** today.
 
-`Click Here: Get the Live Canon Printer Support <https://jivo.chat/KlZSRejpBm>`_
+`Click Here: Get the Live Ring Camera Support <https://jivo.chat/KlZSRejpBm>`_
 
 Find out how to reach **Ring Helpline Number +1-803-888-4148 USA** or **Ring Customer Service Number +1-803-888-4148** by phone, email, or social media. Get the company's mailing address, executive contacts, and responsiveness rating.
 
